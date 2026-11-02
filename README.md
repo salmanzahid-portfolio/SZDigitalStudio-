@@ -1,1 +1,1 @@
-# SZDigitalStudio-
+# SZDigitalStudio
